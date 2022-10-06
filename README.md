@@ -1,1 +1,1 @@
-# Latihan-Mg2---PemWeb
+# Latihan Mg2 - PemWeb
